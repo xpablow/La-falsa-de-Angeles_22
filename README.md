@@ -34,4 +34,4 @@ CCBY Creacion y Difusión de Nuevos Contenidos Audiovisuales
 
 Facultad de Comunicación y Documentación
 
-Universidad de Granada
+Universidad de Granada. 
